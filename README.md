@@ -4,7 +4,7 @@
 😷 Fisioterapeuta Intensivista (USP)
 📊 Técnico em Administração (SENAC)
 
-*Sou formado em Fisioterapia pelo Centro Universitário de Guaxupé (UNIFEG). Possuo aprimoramento profisisonal em Fisioterapia Cardiorrespiratória pelo HCRP - USP, especialização em Gestão em Saúde e Saúde Pública pela UNIAMERICA. Também possuo formação técnica em Administração pelo SENAC MINAS. Atualmente estou desenvolvendo outras habilidades, ampliando para a área de tecnologia e, por isso, estou cursando Tecnologia da Informação (4º Período) pela UNIVESP e capacitação em desenvolvimento Front-End pela ADA TECH como bolsista no programa Vem Ser Tech da IFood. Trabalho como plantonista em uma UTI da Santa Casa de Guaxupé e tive experiência no setor público na Prefeitura Municipal de Guaxupé e no Instituto Brasileiro de Geográfia e Estatística.* 
+*Sou formado em Fisioterapia pelo Centro Universitário de Guaxupé (UNIFEG). Possuo aprimoramento profisisonal em Fisioterapia Cardiorrespiratória pelo Hospital das Clínicas da Faculdade de Medicina de Ribeirão Preto (USP), especialização em Gestão em Saúde e Saúde Pública pela UNIAMERICA. Também possuo formação técnica em Administração pelo SENAC MINAS. Atualmente estou desenvolvendo outras habilidades, ampliando para a área de tecnologia e, por isso, estou cursando Tecnologia da Informação (4º Período) pela UNIVESP e capacitação em desenvolvimento Front-End pela ADA TECH como bolsista no programa Vem Ser Tech da IFood. Trabalho como plantonista em uma UTI da Santa Casa de Guaxupé e tive experiência no setor público na Prefeitura Municipal de Guaxupé e no Instituto Brasileiro de Geográfia e Estatística.* 
 
 ***Principais temas de estudos e desenvolvimento atuais:***
 
